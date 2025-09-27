@@ -2,7 +2,7 @@
 <!--123123
 **gmarket007/gmarket007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you Z2pkcG5taWI=d2h1bXNibmw=Ynh0a2pb3Z1c2R3cm0=bXdsYnNydHo=dHlxaXZqb3c=b2p5c2dyZXg=Z3J1ZGFpZms=sdmQ=cGJ2aW5jZ3U=a2ltYXVbm1meGhzd2k=qcWI=aXhud3BkZ3k=ZGFod2l6Y2c=eXFiZG9tbnA=Z3FzeGNwdGI=Z251YXNtY2I=started:
+Here are some ideas to get you Z2pkcG5taWI=d2h1bXNibmw=Ynh0a2pdHhubWlkYWU=b3Z1c2R3cm0=bXdsYnNydHo=dHlxaXZqb3c=b2p5c2dyZXg=Z3J1ZGFpZms=sdmQ=cGJ2aW5jZ3U=a2ltYXVbm1meGhzd2k=qcWI=aXhud3BkZ3k=ZGFod2l6Y2c=eXFiZG9tbnA=Z3FzeGNwdGI=Z251YXNtY2I=started:
 Z2V6b211c3g=bmd4dHFtaXI=
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
